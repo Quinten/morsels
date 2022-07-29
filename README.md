@@ -1,2 +1,2 @@
 # morsels
-studies in acrylic
+studies in acryl
